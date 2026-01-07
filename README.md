@@ -1,0 +1,1 @@
+Прохожусь по данному уроку: https://www.youtube.com/watch?v=w4nrT7emiVc
